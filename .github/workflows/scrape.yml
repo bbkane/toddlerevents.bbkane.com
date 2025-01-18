@@ -1,0 +1,33 @@
+
+jobs:
+  scheduled:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Check out this repo
+        uses: actions/checkout@v3
+      - name: Install toddlerevents
+        run: |-
+          eval "$(/home/linuxbrew/.linuxbrew/bin/brew shellenv)"
+          brew install bbkane/tap/toddlerevents
+      - name: Download data
+        run: |-
+          eval "$(/home/linuxbrew/.linuxbrew/bin/brew shellenv)"
+          toddlerevents_LOG_LEVEL=DEBUG toddlerevents download
+      - name: Write README
+        run: |-
+          eval "$(/home/linuxbrew/.linuxbrew/bin/brew shellenv)"
+          toddlerevents_LOG_LEVEL=DEBUG toddlerevents_README_PATH=README.md  toddlerevents write
+      - name: Commit and push if it changed
+        run: |-
+          git config user.name "Automated"
+          git config user.email "actions@users.noreply.github.com"
+          git add README.md
+          timestamp=$(date -u)
+          git commit -m "Latest data: ${timestamp}" || exit 0
+          git push
+name: Scrape latest data
+on:
+  push:
+  schedule:
+    - cron: 0 11 * * FRI,MON
+  workflow_dispatch:
