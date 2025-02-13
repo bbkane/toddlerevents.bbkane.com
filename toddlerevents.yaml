@@ -1,0 +1,22 @@
+bibliocommons:
+  days: 8
+  feeds:
+    # https://paloalto.bibliocommons.com/v2/events?audiences=59a6e0705e7f62711a36e6ae%2C59a6e0705e7f62711a36e6ad%2C59a6e0705e7f62711a36e6ac
+    - code: paloalto
+      url: https://gateway.bibliocommons.com/v2/libraries/paloalto/rss/events?audiences=59a6e0705e7f62711a36e6ae%2C59a6e0705e7f62711a36e6ad%2C59a6e0705e7f62711a36e6ac
+    # https://sccl.bibliocommons.com/v2/events?audiences=5b2a5dcb2c1d736b168c62ac%2C5b28181c4727c7344c796677%2C5b28181c4727c7344c796676
+    - code: sccl
+      url: https://gateway.bibliocommons.com/v2/libraries/sccl/rss/events?audiences=5b2a5dcb2c1d736b168c62ac%2C5b28181c4727c7344c796677%2C5b28181c4727c7344c796676
+    # https://sjpl.bibliocommons.com/v2/events?audiences=5d5f09306bb98139001cffcc
+    - code: sjpl
+      url: https://gateway.bibliocommons.com/v2/libraries/sjpl/rss/events?audiences=5d5f09306bb98139001cffcc
+    # https://smcl.bibliocommons.com/v2/events?audiences=564274cf4d0090f742000016%2C564274cf4d0090f742000011
+    - code: smcl
+      url: https://gateway.bibliocommons.com/v2/libraries/smcl/rss/events?audiences=564274cf4d0090f742000016%2C564274cf4d0090f742000011&startDate=2025-01-10&endDate=2025-01-13
+  filepath_template: tmp_rss_{{ .Code }}_{{ .Number }}.rss
+  pages: 5
+  start_date: today
+log:
+  level: DEBUG
+write:
+  readme_path: README.md
