@@ -1,186 +1,3 @@
-# Mon 2025-06-16
-
-## Gilroy
-
-18:00 - 19:00 [Science Heroes [Summer Reading 2025]](https://sccl.bibliocommons.com/events/681a9bbd2d815929008a8ab1)
-
-Level up your science knowledge with exciting hands-on experiments and engaging stories! This show celebrates scientists who &#39;level up&#39; with art and design, inspiring the next generation of innovators. For ages 5-11. 
-For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@sccl.org.
----
-¡Mejora tus conocimientos de ciencia con emocionantes experimentos prácticos y cuentos fascinantes! Este espectáculo celebra a los científicos que &#34;suben de nivel&#34; con arte y diseño, inspirando a la próxima generación de innovadores. Edad recomendada: de 5 a 11 años.Para solicitar adaptaciones de accesibilidad (por ejemplo, lenguaje de señas americano), por favor llene el formulario en línea en sccld.org/accessibility al menos 7 días antes del evento. Si necesita ayuda con el formulario, hable con un miembro del personal en su biblioteca local, llame al (408) 540-3945 o envíenos un correo electrónico a ask@sccl.org.
-
-
-Sign up for Summer Reading 2025: Level Up at Your Library June 1st – July 31st and earn a reward for reading 5 books and completing 1 activity.
-Sign up and track your books with Beanstack online: https://sccl.beanstack.org/reader365 or download the free Beanstack App.
-
----
-Regístrese para Lectura de verano 2025: Sube de nivel en tu biblioteca del 1 de junio al 31 de julio y gane una recompensa por leer 5 libros y completar 1 actividad. Recoja su recompensa final en su biblioteca local de SCCLD del 1 al 31 de agosto hasta agotar premios.
-Regístrate y lleva el seguimiento de tus libros con Beanstack en línea: https://sccl.beanstack.org/rea... o descarga la aplicación gratuita de Beanstack.
-
----
-
-19:00 - 20:00 [Pajama Storytime](https://sccl.bibliocommons.com/events/6779cbacbe9184c03ac41357)
-
-Please join us at Gilroy Library for the Pajama Storytime where we read stories, sing songs, play games, and wear our pajamas for children of all ages with Librarian Nhu-Y! Learning while having fun.Every Monday at 7 pm, in the Nest--Acompañenos en nuestra Hora de Cuentos en Pijama en la biblioteca de Gilroy, donde leemos cuentos, cantamos canciones, y jugamos con la bibliotecaria Nhu-Y. No olviden traer sus pijamas puestas. ¡Aprendan mientras se divierten!Cada Lunes a las 7:00pm en el nido
-
-## San Jose
-
-17:30 - 18:30 [Family Storytime + Stay & Play](https://sjpl.bibliocommons.com/events/67e5e91fa41c773600283aa8)
-
-Storytime is designed to accommodate a mix of ages and invites the entire family to participate in early literacy activities such as stories, songs, rhymes, fingerplays, and movement activities. Storytime is a fun and interactive experience for the whole family that promotes the joys of reading and learning for all ages. This program is geared for children of all ages and their parents/caregivers! 
-After Storytime concludes, we invite you to Stay &amp; Play! Until 6:30 pm the Storytime librarian and special toys will be on the Children&#39;s Room floor to keep the fun going. Meet new friends, play with toys, chat, get book recommendations, and maybe even create something!
-Storytime 5:30-6:00 PMStay &amp; Play 6:00-6:30 PM
-Free, with limited capacity.
-This program is developed to align with the Early Education Quality Standards.
-ADA Accommodation Requests
-
----
-
-18:00 - 18:30 [Music and Movement in Vietnamese and English / Múa Hát Song Ngữ Anh-Việt](https://sjpl.bibliocommons.com/events/673d284fcb66923d0032b411)
-
-Bilingual Music and Movement in English and Vietnamese is designed to accommodate a mix of ages and invites the entire family to participate in early literacy activities through songs, rhymes, finger plays, and movement activities both in English and Vietnamese. Music and Movement is a fun and interactive experience for the whole family that promotes the joys of learning for all ages. This program is geared for children of all ages and their parents/caregivers! 
-On the 4th Tuesday of each month, a bilingual story will be read during this program.
-Free, no registration is required. 
-Please note that this will be an indoor program.  
-This program is developed to align with the Early Education Quality Standards.
-ADA Accommodation Requests
-
-Múa hát song ngữ bằng tiếng Anh và tiếng Việt được thiết kế để phù hợp với nhiều lứa tuổi. Chúng tôi mong muốn mời cả gia đình cùng tham gia vào các hoạt động này để cùng hát các bài đồng dao, cùng vận động ngón tay và cùng nhảy múa vui vẻ. Âm nhạc và nhảy múa là một trải nghiệm thú vị và giúp cho cả gia đình tương tác tốt hơn, thúc đẩy niềm vui học tập cho trẻ em ở mọi lứa tuổi. Mọi người đều được nhiệt liệt chào đón tại chương trình này. 
-Kể chuyện song ngữ và múa hát cùng với làm thủ công vào thứ ba của tuần thứ tư trong tháng. Chương trình hoàn toàn miễn phí và không cần phải đăng ký trước. 
-
-ADA Yêu cầu Phương tiện để tham gia chương trình
-
-# Tue 2025-06-17
-
-## Atherton
-
-17:30 - 19:30 [Maker Exploration](https://smcl.bibliocommons.com/events/67646ca90415b1cee3bcc98b)
-
-Want to explore our Makerspace? Come and join us during our open hour to learn about 3D printers, Laser Cutters and more!
-
-## Cupertino
-
-19:00 - 20:00 [Summer 2025 Level Up at Your Library: Dream Top](https://sccl.bibliocommons.com/events/680a935e0453817cac2b45e9)
-
-Children and their families are invited to join us for a kids adventure show with Drea from Dream Top. Look out! Drea stumbled into a blast-o-rama machine that zapped her with super vibes! Join Drea and her accomplice, Quakers the Emu puppet, to discover your own super powers and go on a top secret mission.!
-
-For children and families. Please arrive on time. Space is limited.
-Generously sponsored by the Friends of Cupertino Library.For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@sccl.org.
-
-Sign up for Summer Reading 2025: Level Up at Your Library June 1st – July 31st and earn a reward for reading 5 books and completing 1 activity.
-Sign up and track your books with Beanstack online: https://sccl.beanstack.org/rea... or download the free Beanstack App.
-Pick up your finishing reward at your local SCCLD library August 1st – 31st while supplies last.
-All Summer Reading Program information available here: https://sccld.org/summer/
-
-## Half Moon Bay
-
-17:00 - 18:00 [U.S. Citizenship Test Class](https://smcl.bibliocommons.com/events/6681d2513849bf4100bf8e68)
-
-The Half Moon Bay Library invites you to practice the 100 Civics questions provided by the USCIS office. You will also get a chance to practice a mock interview. Free study materials will be provided. Everyone is welcome!La biblioteca de Half Moon Bay te invita a practicar las 100 preguntas de educación cívica proporcionadas por la oficina de USCIS. También tendrás la oportunidad de practicar una entrevista simulada. Se proporcionarán materiales de estudio gratuitos. ¡Todos son bienvenidos!
-
----
-
-17:30 - 18:00 [Pajama Storytime ](https://smcl.bibliocommons.com/events/682ceede9fe6f43e00c7b7f9)
-
-Join us for a Pajama Family Storytime Adventure! Come along in your coziest pajamas for an imaginary journey where we&#39;ll hear new stories, sing songs, and learn fun wiggles that the whole family can enjoy together, from toddlers to grown-ups. Bring your favorite bedtime buddy and get ready for a night of fun!¡Acompáñenos para una aventura familiar de cuentos en pijama! Acompáñanos con tu pijama más favorita en un viaje imaginario en el que escucharemos nuevos cuentos, cantaremos canciones y aprenderemos divertidos meneos que toda la familia puede disfrutar junta, desde niños pequeños hasta adultos. ¡Trae a tu compañero favorito a la hora de dormir y prepárate para una noche de diversión!
-
-## Milpitas
-
-18:30 - 19:30 [Bilingual Family Storytime / 中英雙語故事時間 ](https://sccl.bibliocommons.com/events/68082c832b0fb15d9fb114fb)
-
-This thirty minute storytime features movement, sing, and action! The early literacy focus is on sharing stories and songs in English and Mandarin Chinese.歡迎小朋友來到故事時間，這是以半小時的雙中英語故事書, 兒歌, 手指謠, 玩遊戲為特色的内容。歡迎兒童們與家長褓母一同前來參加。For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@sccl.org.
-
-## San Jose
-
-17:00 - 18:00 [Music and Movement in Vietnamese and English / Múa Hát Song Ngữ Anh-Việt](https://sjpl.bibliocommons.com/events/6835f53beafdf33000c0c1cb)
-
-Bilingual Music and Movement in English and Vietnamese is designed to accommodate a mix of ages and invites the entire family to participate in early literacy activities through songs, rhymes, finger plays, and movement activities both in English and Vietnamese. Music and Movement is a fun and interactive experience for the whole family that promotes the joys of learning for all ages. This program is geared for children of all ages and their parents/caregivers! 
-Stay for a fun craft starting at 5:30 PM after Music &amp; Movement.
-On the 4th Tuesday of each month, a bilingual story will be read during this program.
-Free, no registration is required.
-This program is developed to align with the Early Education Quality Standards.ADA Accommodation Requests
-
-Múa hát song ngữ bằng tiếng Anh và tiếng Việt được thiết kế để phù hợp với nhiều lứa tuổi. Chúng tôi mong muốn mời cả gia đình cùng tham gia vào các hoạt động này để cùng hát các bài đồng dao, cùng vận động ngón tay và cùng nhảy múa vui vẻ. Âm nhạc và nhảy múa là một trải nghiệm thú vị và giúp cho cả gia đình tương tác tốt hơn, thúc đẩy niềm vui học tập cho trẻ em ở mọi lứa tuổi. Mọi người đều được nhiệt liệt chào đón tại chương trình này. 
-Chương trình làm thủ công sẽ bắt đầu vào 5:30 chiều, sau phần múa hát song ngữ.
-Kể chuyện song ngữ và múa hát cùng với làm thủ công vào thứ ba của tuần thứ tư trong tháng. Chương trình hoàn toàn miễn phí và không cần phải đăng ký trước.ADA Yêu cầu Phương tiện để tham gia chương trình
-
-# Wed 2025-06-18
-
-## Cupertino
-
-19:00 - 19:30 [Bedtime Storytime](https://sccl.bibliocommons.com/events/67fd549a7374ee901ddaca2f)
-
-Join us for evening Family Storytime in our program room! This storytime series is suitable for all ages and will feature stories, songs, rhymes and dances, all to encourage the development of crucial early literacy skills. Parents and children will listen together, learn together, and sing together.
-Storytime is limited to the first 100 families, with a maximum of 2 adults per family group. Please bring a yoga mat or blanket to sit on.
-
-## Milpitas
-
-19:00 - 19:45 [Summer 2025 Level Up at Your Library: Mike the Magician](https://sccl.bibliocommons.com/events/682ba5ff4f2cd1c0cc86283c)
-
-Join Magician Mike Della Penna as he creates wonder and laughter with a family magic performance that is equal parts playful and astonishing!Tickets are required for entry. Pick up a FREE ticket 30 minutes before the performance. Attendees must be present to collect their tickets.  *(Limit of two adults per family.)*Thank you to the Friends of the Milpitas Library for making this summer reading performance possible!For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+ days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@sccl.org.
-
-
-
-Sign up for Summer Reading 2025: Level Up at Your Library June 1st – July 31st and earn a reward for reading 5 books and completing 1 activity.
-Sign up and track your books with Beanstack online: https://sccl.beanstack.org/reader365 or download the free Beanstack App.
-Pick up your finishing reward at your local SCCLD library August 1st – 31st while supplies last.
-All Summer Reading Program information available here: www.sccld.org/summer
-
-## Pacifica
-
-19:00 - 19:45 [Family Storytime With Stay and Play](https://smcl.bibliocommons.com/events/672015188fc0a3280009efc4)
-
-Get ready to learn and play with your little one! Hear new stories, sing songs and learn wiggles that the whole family can enjoy together, from toddlers to grown-ups.After Storytime join us for Stay and Play, a time to engage in open-ended exploration and learning in the company of other children and caregivers.
-
-## San Jose
-
-17:30 - 18:15 [Indoor Music and Movement](https://sjpl.bibliocommons.com/events/6764732f08738767c12100e2)
-
-This program is best for children ages 2-8 with their caregivers, but all children with caregivers are welcome.
-Join us every Wednesday for Music and Movement at the King Library Children&#39;s Room! 
-Music and Movement is designed to accommodate a mix of ages and invites the entire family to participate in early literacy activities through song and movement activities - sometimes with scarves, shakey eggs, and rhythm sticks! Music and Movement is a high energy Storytime - a fun and interactive experience for the whole family that promotes the joys of learning. We&#39;ll move and groove to our playlist (new playlist the first week of each month), then settle down with a story to finish up.
-Free, with limited capacity.
-This program is developed to align with the Early Education Quality Standards.
-ADA Accommodation Requests
-
----
-
-17:30 - 18:00 [Đọc Sách Cho Trẻ Em bằng tiếng Việt - Reading to Children in Vietnamese](https://sjpl.bibliocommons.com/events/6837a35a74149d7680045570)
-
-Tình nguyện viên của chúng tôi sẽ đọc truyện bằng tiếng Việt cho trẻ em và gia đình của các em. Tham gia chương trình Đọc Sách Cho Trẻ Em là một cách tuyệt vời để trẻ em phát triển trí tưởng tượng và khơi dậy tình yêu sách, thích đọc sách và học tập.
-ADA Yêu cầu Phương tiện để tham gia chương trình
----Our wonderful volunteer will read stories in Vietnamese to children and their families. Participating in the Reading to Children program is a great way for children to develop their imagination and spark a love for books, reading and learning.ADA Accommodation Requests
-
----
-
-17:30 - 18:30 [西游记 (读书会)](https://sjpl.bibliocommons.com/events/68265716a92893579f3c4629)
-
-A book club dedicated to &#34;Journey to the West,&#34; the classic Chinese fiction. This club is designed for children who are fans of the story and is conducted entirely in Mandarin Chinese.小朋友们，你们听说过《西游记》吗？ 这是中国最有名的神话故事之一，讲述了一段惊险又有趣的旅程。在这个故事里，有聪明勇敢的孙悟空、善良慈悲的唐僧、憨厚搞笑的猪八戒，还有忠诚可靠的沙和尚。他们一路上经历了许多危险和考验，但靠着智慧和团结，成功完成了任务。这次旅程不仅是他们追寻经书的故事，更是一场关于勇气、坚持和成长的冒险！更多有关 美猴王系列丛书. 
-5/7, 5/14, 5/21, 5/28,  6/4. 6/11, 6/18, 6/25, 7/2, 7/9, 7/16, 7/23, 7/30, 8/6 
-免费的亲子中文活動. 座位数量有限. 门票将在故事时间开始前 30 分钟在询问处领取。
-美国残疾人法案(ADA)申请提供协助
-
-# Thu 2025-06-19
-
-## Palo Alto
-
-18:00 - 21:00 [External Event: 3rd Thursday on California Ave](https://paloalto.bibliocommons.com/events/679c021b08738767c1276cbb)
-
-Experience live music, local eats, and shopping at 3rd Thursdays on California Avenue. Musicians will perform at different spots along the avenue, offering a chance to discover and support local businesses. Enjoy additional attractions such as photo booth and community art.
-Sponsored by the City of Palo Alto and the Chamber of Commerce, this free monthly music series occurs every third Thursday and all are welcome. Join us on Cal Ave and be part of the festivities!
-Learn More
-February 20  –  Let&#39;s Grow Together
-March 20 – Youth Views 
-April 17  –  Greening Up Cal Ave
-May 15 – We are Two-gether
-June 19  – Local Libations
-July 17 – Summer Fun &amp; Games
-August 21 – Taste of Cal Ave
-September 18 – Let&#39;s Dance
-October 16 – Sustainability Fun Fair
-November 20 – Thankscaring
-December 18 – Winter Lights
-
 # Fri 2025-06-20
 
 ## Cupertino
@@ -230,9 +47,9 @@ Start your summer off with a party at the library, on Saturday, June 21, from 10
 
 10:30 - 11:30 [Bilingual Storytime: English & Spanish / Hora de Cuentos Bilingüe: Ingles y Español](https://sccl.bibliocommons.com/events/6768b230f347846dfed749e7)
 
-Join us for stories and songs in English &amp; Spanish, followed by music &amp; play time with Librarian Patty
+Join us for stories and songs in English &amp; Spanish by , followed by music lead by Librarian PattyStay and Play time will be at our new Play Space Area.
 
-Acompáñenos a escuchar cuentos y canciones en ingles y español, seguido por música y tiempo para jugar con la Bibliotecaria Patty.
+Acompáñenos a escuchar cuentos y canciones en ingles y español, dirigido por Bibliotecaria Patty.Quédese disfrutar nuestra area de juego.
 
 ---
 
@@ -309,14 +126,6 @@ Join us on Saturday mornings for Family Storytime. This thirty-minute story t
 
 ## Morgan Hill
 
-10:30 - 11:15 [Bilingual Spanish & English Family Storytime](https://sccl.bibliocommons.com/events/681537922d8159290089dbae)
-
-Join us in the Children&#39;s Activity Room for family fun with your little one! Stories, music, movement, and more!Storytimes are bilingual (Spanish/English) and all ages are welcome to attend.
-
-¡Acompáñenos en la sala de actividades para niños para divertirse en familia con su pequeño! ¡Cuentos, música, movimiento y más!Las horas de cuentos son bilingües (español/inglés) y todas las edades son bienvenidas.
-
----
-
 10:30 - 11:30 [Malinky Music for Kids (Summer 2025 Level Up at Your Library)](https://sccl.bibliocommons.com/events/6844ac046d83b22800d1db3c)
 
 Malinky Music brings joyful, bilingual Spanish-English music and movement for young children and families. Promoting language development, motor skills, and cultural appreciation through interactive songs and play, your little ones will gain new skills while singing and having loads of fun!
@@ -327,6 +136,14 @@ Sign up for Summer Reading 2025: Level Up at Your Library June 1st – July 31s
 Sign up and track your books with Beanstack online: https://sccl.beanstack.org/reader365 or download the free Beanstack App.
 Pick up your finishing reward at your local SCCLD library August 1st – 31st while supplies last.
 All Summer Reading Program information available here: www.sccld.org/summer
+
+---
+
+10:30 - 11:15 [Bilingual Spanish & English Family Storytime](https://sccl.bibliocommons.com/events/681537922d8159290089dbae)
+
+Join us in the Children&#39;s Activity Room for family fun with your little one! Stories, music, movement, and more!Storytimes are bilingual (Spanish/English) and all ages are welcome to attend.
+
+¡Acompáñenos en la sala de actividades para niños para divertirse en familia con su pequeño! ¡Cuentos, música, movimiento y más!Las horas de cuentos son bilingües (español/inglés) y todas las edades son bienvenidas.
 
 ## Pacifica
 
@@ -442,6 +259,12 @@ Reading to children with Ms. Stefanie:
 11:00 - 11:45 [Make Music Day with Ukulele Scramble](https://sjpl.bibliocommons.com/events/68363c94a92893579f3e373d)
 
 Celebrate Make Music Day with a live musical performance by intergenerational ukulele band Ukulele Scramble!ADA Accommodation Requests
+
+---
+
+11:00 - 12:00 [Make Music Day Stay & Play](https://sjpl.bibliocommons.com/events/6851efeba394bf4e3c488c6d)
+
+Let&#39;s play with musical instruments!  This will be a musical storytime, with lots of chances to use our instruments.  We will talk about instruments and experiment with the ones we have. This is not a class, just an opportunity to play and sing.  ADA Accommodation Requests
 
 ---
 
@@ -672,4 +495,210 @@ The Half Moon Bay Library invites you to practice the 100 Civics questions provi
 18:30 - 19:30 [Bilingual Family Storytime / 中英雙語故事時間 ](https://sccl.bibliocommons.com/events/68082c832b0fb15d9fb114fc)
 
 This thirty minute storytime features movement, sing, and action! The early literacy focus is on sharing stories and songs in English and Mandarin Chinese.歡迎小朋友來到故事時間，這是以半小時的雙中英語故事書, 兒歌, 手指謠, 玩遊戲為特色的内容。歡迎兒童們與家長褓母一同前來參加。For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@sccl.org.
+
+# Wed 2025-06-25
+
+## Cupertino
+
+19:00 - 19:30 [Bedtime Storytime](https://sccl.bibliocommons.com/events/67fd549a7374ee901ddaca30)
+
+Join us for evening Family Storytime in our program room! This storytime series is suitable for all ages and will feature stories, songs, rhymes and dances, all to encourage the development of crucial early literacy skills. Parents and children will listen together, learn together, and sing together.
+Storytime is limited to the first 100 families, with a maximum of 2 adults per family group. Please bring a yoga mat or blanket to sit on.
+
+## Milpitas
+
+19:00 - 20:00 [Summer 2025 Level Up at Your Library: Capoeira with Jarrel Phillips](https://sccl.bibliocommons.com/events/682ba60fa92893579f3cdc36)
+
+Come learn about the
+Afro-Brazilian art form Capoeira, which combines martial arts, acrobatics,
+music, and dance!
+Tickets are required for entry. Pick up a FREE ticket 30 minutes before the
+performance. Attendees must be present to collect their tickets.  *(Limit
+of two adults per family.)* 
+Thank you to the Friends of the Milpitas Library for making this summer reading program possible!
+For accessibility accommodations (ex. ASL), please
+fill out the online form at sccld.org/accessibility 7+ days prior to the event.
+If you need assistance with the form, speak with a staff member at your local
+library, call (408) 540-3945, or email us at ask@sccl.org.
+
+
+
+Sign up for Summer Reading 2025: Level Up at Your Library June 1st – July 31st and earn a reward for reading 5 books and completing 1 activity.
+Sign up and track your books with Beanstack online: https://sccl.beanstack.org/reader365 or download the free Beanstack App.
+Pick up your finishing reward at your local SCCLD library August 1st – 31st while supplies last.
+All Summer Reading Program information available here: www.sccld.org/summer
+
+## Pacifica
+
+19:00 - 19:45 [Family Storytime With Stay and Play](https://smcl.bibliocommons.com/events/672015188fc0a3280009efc5)
+
+Get ready to learn and play with your little one! Hear new stories, sing songs and learn wiggles that the whole family can enjoy together, from toddlers to grown-ups.After Storytime join us for Stay and Play, a time to engage in open-ended exploration and learning in the company of other children and caregivers.
+
+## San Jose
+
+17:30 - 18:15 [Indoor Music and Movement](https://sjpl.bibliocommons.com/events/6764732f08738767c12100e3)
+
+This program is best for children ages 2-8 with their caregivers, but all children with caregivers are welcome.
+Join us every Wednesday for Music and Movement at the King Library Children&#39;s Room! 
+Music and Movement is designed to accommodate a mix of ages and invites the entire family to participate in early literacy activities through song and movement activities - sometimes with scarves, shakey eggs, and rhythm sticks! Music and Movement is a high energy Storytime - a fun and interactive experience for the whole family that promotes the joys of learning. We&#39;ll move and groove to our playlist (new playlist the first week of each month), then settle down with a story to finish up.
+Free, with limited capacity.
+This program is developed to align with the Early Education Quality Standards.
+ADA Accommodation Requests
+
+---
+
+17:30 - 18:00 [Đọc Sách Cho Trẻ Em bằng tiếng Việt - Reading to Children in Vietnamese](https://sjpl.bibliocommons.com/events/6837a35a74149d7680045571)
+
+Tình nguyện viên của chúng tôi sẽ đọc truyện bằng tiếng Việt cho trẻ em và gia đình của các em. Tham gia chương trình Đọc Sách Cho Trẻ Em là một cách tuyệt vời để trẻ em phát triển trí tưởng tượng và khơi dậy tình yêu sách, thích đọc sách và học tập.
+ADA Yêu cầu Phương tiện để tham gia chương trình
+---Our wonderful volunteer will read stories in Vietnamese to children and their families. Participating in the Reading to Children program is a great way for children to develop their imagination and spark a love for books, reading and learning.ADA Accommodation Requests
+
+---
+
+17:30 - 18:30 [西游记 (读书会)](https://sjpl.bibliocommons.com/events/68265716a92893579f3c462a)
+
+A book club dedicated to &#34;Journey to the West,&#34; the classic Chinese fiction. This club is designed for children who are fans of the story and is conducted entirely in Mandarin Chinese.小朋友们，你们听说过《西游记》吗？ 这是中国最有名的神话故事之一，讲述了一段惊险又有趣的旅程。在这个故事里，有聪明勇敢的孙悟空、善良慈悲的唐僧、憨厚搞笑的猪八戒，还有忠诚可靠的沙和尚。他们一路上经历了许多危险和考验，但靠着智慧和团结，成功完成了任务。这次旅程不仅是他们追寻经书的故事，更是一场关于勇气、坚持和成长的冒险！更多有关 美猴王系列丛书. 
+5/7, 5/14, 5/21, 5/28,  6/4. 6/11, 6/18, 6/25, 7/2, 7/9, 7/16, 7/23, 7/30, 8/6 
+免费的亲子中文活動. 座位数量有限. 门票将在故事时间开始前 30 分钟在询问处领取。
+美国残疾人法案(ADA)申请提供协助
+
+# Thu 2025-06-26
+
+## Atherton
+
+17:30 - 19:30 [Maker Exploration](https://smcl.bibliocommons.com/events/67646ca90415b1cee3bcc98e)
+
+Want to explore our Makerspace? Come and join us during our open hour to learn about 3D printers, Laser Cutters and more!
+
+## Milpitas
+
+18:30 - 19:00 [Preschool Storytime: 3's & 4's Budding Bookworms](https://sccl.bibliocommons.com/events/68082ca2a92893579f382a1d)
+
+This thirty-minute story time is geared for preschoolers ages 3, 4, and 5. The early literacy focus is on longer picture books and flannel board stories and other storytelling activities and fingerplays. Children’s librarians also share kindergarten readiness resources with caregivers.For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@sccl.org.
+
+## San Jose
+
+17:30 - 18:30 [Family Storytime + Stay & Play](https://sjpl.bibliocommons.com/events/6705a5eb22e7d887169893f2)
+
+Storytime is designed to accommodate a mix of ages and invites the entire family to participate in early literacy activities such as stories, songs, rhymes, fingerplays, and movement activities. Storytime is a fun and interactive experience for the whole family that promotes the joys of reading and learning for all ages. This program is geared for children of all ages and their parents/caregivers! 
+After Storytime concludes, we invite you to Stay &amp; Play! Until 6:30 pm the Storytime librarian and special toys will be on the Children&#39;s Room floor to keep the fun going. Meet new friends, play with toys, chat, get book recommendations, and maybe even create something!
+Storytime 5:30-6:00 PMStay &amp; Play 6:00-6:30 PM
+Free, with limited capacity.
+This program is developed to align with the Early Education Quality Standards.
+ADA Accommodation Requests
+
+---
+
+17:30 - 18:30 [Bilingual Family Storytime - English and Vietnamese/ Đọc Truyện và Hát Song Ngữ Anh-Việt](https://sjpl.bibliocommons.com/events/6758d20b780c53e63c6eca9a)
+
+Bilingual Family Storytime (English and Vietnamese).
+Hillview Library offers a bilingual family storytime every Thursday evening. This program is open to children of all ages and their parents/caregivers. Join us in helping your child(ren) learn to read and sing in Vietnamese.Free. No registration required.
+For a complete list of storytimes: sjpl.org/storytimes
+ADA Accommodation Requests
+
+Giờ Đọc Truyện Gia Đình song ngữ (tiếng Anh và tiếng Việt).
+Thư viện Hillview có chương trình đọc truyện gia đình song ngữ vào mỗi tối Thứ Năm hàng tuần. Chương trình này giành cho trẻ em ở mọi lứa tuổi và các phụ huynh/người chăm sóc. Hãy tham gia vào chương trình này để giúp các em trong việc đọc và hát tiếng Việt tốt hơn. 
+Miễn phí. Không cần đăng ký.
+Để xem danh sách đầy đủ về các chương trình kể chuyện: sjpl.org/storytimes
+Yêu cầu về phương tiện cho ADA
+
+# Sat 2025-06-28
+
+## Atherton
+
+10:30 - 11:15 [Malinky Music](https://smcl.bibliocommons.com/events/681e40ac2d815929008b0371)
+
+Malinky Music offers joyful, bilingual Spanish-English music and movement for young children (ages 0-5) and their families, promoting language development, motor skills, and cultural appreciation through interactive songs and play.
+
+---
+
+11:00 - 14:00 [Maker Exploration for Families](https://smcl.bibliocommons.com/events/67730360018bbb1c3dde8831)
+
+Want to explore our Makerspace? Come and join us during our open hours to learn about 3D printers, laser cutters and more! 
+This session is intended for families of all ages looking to explore our space!
+Open Makerspace at Atherton Library is also available on:
+Tuesdays and Thursdays from 5:30-7:30 PM
+
+## Cupertino
+
+10:30 - 11:00 [Family Storytime at Cupertino Library](https://sccl.bibliocommons.com/events/67fd54977374ee901ddaca10)
+
+Join us for Family Storytime for all ages in our program room! This storytime series is suitable for all ages and will feature stories, songs, rhymes and dances, all to encourage the development of crucial early literacy skills. Parents and children will listen together, learn together, and sing together.
+Storytime is limited to the first 100 families, with a maximum of 2 adults per family group. Please bring a yoga mat or blanket to sit on.
+
+## Gilroy
+
+10:30 - 11:30 [Bilingual Storytime: English & Spanish / Hora de Cuentos Bilingüe: Ingles y Español](https://sccl.bibliocommons.com/events/6768b230f347846dfed749e8)
+
+Join us for stories and songs in English &amp; Spanish by , followed by music lead by Librarian PattyStay and Play time will be at our new Play Space Area.
+
+Acompáñenos a escuchar cuentos y canciones en ingles y español, dirigido por Bibliotecaria Patty.
+Quédese disfrutar nuestra area de juego.
+
+## Half Moon Bay
+
+10:00 - 12:00 [Maker Exploration](https://smcl.bibliocommons.com/events/676b373a59163a2f0036cb75)
+
+Curious about all the fun tech in our Makerspace? Come and learn about our 3D printers, laser cutter, sewing machines, robots, virtual reality (VR) and much more!
+
+---
+
+10:30 - 11:00 [Saturday Storytime](https://smcl.bibliocommons.com/events/6698469d2486bf251bb84c86)
+
+Come along on an imaginary adventure for Family Storytime. Hear new stories, sing songs and learn wiggles that the whole family can enjoy together, from toddlers to grown-ups.
+
+## Millbrae
+
+14:00 - 15:00 [STEPS Stories & Songs](https://smcl.bibliocommons.com/events/682d85a2c99aa4a4604bcb9d)
+
+Join us for an ASL storytelling experience with Kei-Che, a BlackDeaf woman and local educator for Deaf and Hard of Hearing (DHH) children and families. She&#39;ll share her favorite stories and songs in American Sign Language and artistic performance.
+
+## Milpitas
+
+11:00 - 11:30 [Family Storytime](https://sccl.bibliocommons.com/events/67fee46b075f77280075feeb)
+
+Join us on Saturday mornings for Family Storytime. This thirty-minute story time features lots of movement, singing, and action. Early literacy focus is on picture books, flannel board stories and fingerplays and an early introduction to group dynamics and socialization. For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@sccl.org.
+
+## Morgan Hill
+
+10:30 - 11:15 [Bilingual Spanish & English Family Storytime](https://sccl.bibliocommons.com/events/681537922d8159290089dbaf)
+
+Join us in the Children&#39;s Activity Room for family fun with your little one! Stories, music, movement, and more!Storytimes are bilingual (Spanish/English) and all ages are welcome to attend.
+
+¡Acompáñenos en la sala de actividades para niños para divertirse en familia con su pequeño! ¡Cuentos, música, movimiento y más!Las horas de cuentos son bilingües (español/inglés) y todas las edades son bienvenidas.
+
+## Pacifica
+
+10:15 - 11:15 [Bilingual Storytime / Hora de cuentos bilingüe](https://smcl.bibliocommons.com/events/683646ee74149d7680041ca9)
+
+Join us for bilingual Spanish and English stories and music the whole family will love! Children of all ages will enjoy listening, singing and playing along.
+¡Acompáñenos para disfrutar cuentos y música bilingüe en español e inglés que le encantará a toda la familia! Niños de todas edades disfrutarán escuchando cuentos, cantando y jugando juntos.
+
+---
+
+11:15 - 11:30 [Ensamble Folclórico Colibrí ](https://smcl.bibliocommons.com/events/681b83a49fe6f43e00c57a23)
+
+Celebrate Pride with Ensamble Folclórico Colibrí (EFC)! The demonstration will include performances and opportunities for audience participation. EFC mission is to promote the pride of identifying as an LGBTQ+ Latinx through the art of Mexican Folklórico dance, and to preserve our costumes and traditions through cultural and educational projects as well as staged performances.¡Celebra Pride con el Ensamble Folclórico Colibrí (EFC)! El evento incluirá danzas y oportunidades para la participación del público. La misión del EFC es promover el orgullo de identificarse como latinx LGBTQ+ a través del arte de la danza folclórica mexicana, y preservar nuestras costumbres y tradiciones mediante proyectos culturales y educativos, así como presentaciones teatrales.
+
+## Palo Alto
+
+11:00 - 11:30 [Family Storytime](https://paloalto.bibliocommons.com/events/681bd6eb9fe6f43e00c58ff1)
+
+Join Librarian Alicia on Saturdays at 11:00 AM for Family Storytime at Mitchell Park Library. Come sing, rhyme, and read stories with us! While this storytime will be geared towards those older than 2 years, all ages are welcome!
+
+Make sure to follow us on YouTube for more stories, songs and rhymes, including a playlist of all of our favorite songs to sing!
+
+## Portola Valley
+
+10:30 - 11:30 [STEPS Stories & Songs](https://smcl.bibliocommons.com/events/682b645db917d93d77e24074)
+
+Join us for an ASL storytelling experience with Kei-Che, a BlackDeaf woman and local educator for Deaf and Hard of Hearing (DHH) children and families. She&#39;ll be sharing her favorite stories and songs in American Sign Language and artistic performance.
+
+## Saratoga
+
+11:00 - 11:30 [Family Storytime](https://sccl.bibliocommons.com/events/677d78bede0d01f3611a7b96)
+
+Join us for fun stories, fingerplays, action rhymes and songs! Please park strollers in the Children&#39;s room.For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility
+7+days prior to the event. If you need assistance with the form, speak with a staff member at your
+local library, call (408) 540-3945, or email us at ask@sccl.org.
 
