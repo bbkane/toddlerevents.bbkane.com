@@ -27,26 +27,6 @@ A vibrant lion dance greeting by Jing Mo Henna art Live demonstrations and hands
 
 Come celebrate with us and rediscover all that Belmont Library has to offer!
 
----
-
-11:00 - 11:30 [Family Storytime with San Mateo Consolidated Fire Department](https://smcl.bibliocommons.com/events/68a3eaf5709d27410037d0a7)
-
-Get ready for a joyful and engaging family event as Belmont Library staff team up with the dedicated personnel of the San Mateo Consolidated Fire Department for a special Storytime celebration!
-Together, we’ll sing, dance, and read stories that spark imagination and laughter. This lively and heartwarming event is perfect for children and families of all ages. Don’t miss this wonderful opportunity to connect with your community and our local heroes in a fun and memorable way.
-
----
-
-11:45 - 12:15 [Traditional Aztec Dance Performance by Xiuhcoatl Danza Azteca](https://smcl.bibliocommons.com/events/68a3ec5f709d27410037d0c6)
-
-Join us for an unforgettable cultural experience as Xiuhcoatl Danza Azteca, a traditional Aztec dance group founded in 1993 in San Francisco’s Mission District, brings the spirit and energy of ancient Mexico to life through music, movement, and storytelling.
-Founded by Miguel Martinez, Irma Alvarado Martinez, and their family, who have been dancing since the mid-1980s, Xiuhcoatl Danza Azteca shares the vibrant traditions of their ancestors with audiences of all ages. Their performances are a powerful blend of rhythmic drumming, colorful regalia, and ceremonial dance that honors the rich heritage of the Aztec people.
-
----
-
-14:00 - 16:00 [Jazz Performance by Charged Particles](https://smcl.bibliocommons.com/events/68a3ed424fe01d1a0ccb7d8c)
-
-Join us for a high-energy, all-ages musical performance by Charged Particles, a dynamic jazz trio blending Latin rhythms, classical influences, and bold improvisation. With dazzling keyboard work, inventive bass lines, and fiery drumming, this group creates an unforgettable sound that’s both sophisticated and fun. Don’t miss this exciting opportunity to enjoy world-class jazz right at your library!
-
 ## Cupertino
 
 10:30 - 11:00 [Hula Show with Halau O' Pi'ilani](https://sccl.bibliocommons.com/events/68805466709d27410033129c)
@@ -677,4 +657,96 @@ ADA Accommodation Requests
 Join us for fun stories, fingerplays, action rhymes and songs! Please park strollers in the Children&#39;s room.For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility
 7+days prior to the event. If you need assistance with the form, speak with a staff member at your
 local library, call (408) 540-3945, or email us at ask@sccl.org.
+
+# Sun 2025-08-31
+
+## Milpitas
+
+14:00 - 16:00 [Claymation Film Workshops for Ages 4-14](https://sccl.bibliocommons.com/events/68783df0b354fd28002c0ba5)
+
+Discover the art of filmmaking through this fun and interactive Claymation workshop designed for youth ages 4–14. Led by industry experts, participants will gain hands-on experience in character development, storytelling, and stop-motion animation—all while exploring the creative process from a filmmaker’s perspective.
+This two-part workshop series includes:
+Workshop 1: Students will design their own character, including visual details and a back-storyWorkshop 2: Students will learn to animate their character and create a short Claymation film
+🎥 Completed films will be showcased at the Youth and Student Film segment of the upcoming Poppy Jasper International Film Festival, providing participants with the exciting opportunity to see their work on the big screen.
+📌 Created by PJIFF Director L. Mattock “Mattie” Scariot, the Youth Film Program empowers local youth to tell their own stories and discover future possibilities in the filmmaking world. Using family photos, original Kiowa art, and Winter Count calendars, Mattie shares how storytelling shaped her own journey as a filmmaker and author.
+📚 Past workshops have attracted children and adults alike, with engaging discussions on cultural storytelling, identity, and creative craft. Each session fosters discovery, skill-building, and recognition for young creators.
+🌍 The Festival takes place every April across Morgan Hill, Gilroy, Hollister, and San Juan Bautista, and draws more than 3,000 attendees from around the Bay Area and around the globe.
+Check out the documentary made from the last class: (12) PJIFF&#39;s Youth Claymation Class Documentary - YouTube
+
+## San Jose
+
+13:00 - 14:00 [Lego® Club!](https://sjpl.bibliocommons.com/events/676de65c59163a2f0036fb74)
+
+Come join us every Sunday for Lego® Club!  We have tons of Lego® bricks for you to build and explore!  Duplo® bricks are also available for our younger friends. 
+ Want to push yourself and try something a little more difficult?  Ask the librarian for a Lego® Challenge! Important: Children under 5 must be accompanied by their parents as small LEGO® pieces can be choking hazards.ADA Accommodation Requests
+
+---
+
+13:00 - 14:00 [Family Games: Cards & Board Games](https://sjpl.bibliocommons.com/events/676df06a59163a2f0036fcc9)
+
+Children, teens, and their families are invited to play a selection of board games and card games. The games included will be a mix of strategy-based games, educational games, and luck-based games. Come together to have fun with friends and family!ADA Accommodation Requests
+
+---
+
+13:00 - 15:00 [Afternoon Crafts](https://sjpl.bibliocommons.com/events/687951b1c01d8f9159e27500)
+
+Visit the library to participate in arts and crafts for kids.  All tools and supplies are provided.
+Free. No registration required.
+ADA Accommodation Requests
+
+---
+
+13:00 - 14:00 [Reading to Children with Vivian](https://sjpl.bibliocommons.com/events/67c1f63d44a68428005537b5)
+
+Participating in the Reading to Children program is a great way for children to develop their imagination and spark a love for books, reading and learning. Children will enjoy one-on-one or small group interaction with our volunteer. Kids are also welcome to practice reading to our volunteer.
+Reading to Children will take place in the Children&#39;s Area. 
+ADA Accommodation Requests
+
+---
+
+14:00 - 16:00 [Board Game Zone](https://sjpl.bibliocommons.com/events/676de2a959163a2f0036f85f)
+
+Join us every Sunday between 2:00 - 4:00 PM at the Seven Trees Library to play fun board games! We have a large selection to choose from, including new games and classic games that everyone of all ages can enjoy.
+No Registration Required.
+Thanks to the Friends of the Seven Trees Library for making this possible!
+ADA Accommodation Requests
+
+---
+
+14:00 - 15:00 [Reading to Children](https://sjpl.bibliocommons.com/events/685b42cc16b091280034712f)
+
+Participating in the Reading to Children program is a great way for children to develop their imagination and spark a love for books, reading and learning. 
+Children will enjoy one-on-one or small group interaction with our adult volunteer. They are also welcome to practice reading to our volunteer. Pre-registration is not required, and children may drop in to hear a story any time during the program. This program is best suited for preschoolers and children in grades K-3 and will be held in the Children&#39;s Picture Book area.
+Free. No registration required.
+ ADA Accommodation Requests
+
+---
+
+15:00 - 15:30 [Family Storytime](https://sjpl.bibliocommons.com/events/684dbac685662d08198690a8)
+
+Storytime is designed to accommodate a mix of ages and invites the entire family to participate in early literacy activities such as stories, songs, rhymes, fingerplays, and movement activities. Storytime is a fun and interactive experience for the whole family that promotes the joys of reading and learning for all ages. This program is geared for children of all ages and their parents/caregivers!
+This program is developed to align with the Early Education Quality Standards.
+Free. No registration required.ADA Accommodation Requests
+
+---
+
+15:00 - 15:30 [Reading to Children](https://sjpl.bibliocommons.com/events/6866dd9cb7a97e360014c9c8)
+
+Participating in the Reading to Children program is a great way for children to develop their imagination and spark a love for books, reading and learning. 
+Children will enjoy one-on-one or small group interaction with our volunteer. They are also welcome to practice reading to our volunteer. Pre-registration is not required, and children may drop in to hear a story any time during the program. This program is best suited for preschoolers and children in grades K-3 and will be held in the Children&#39;s Picture Book area.
+Free. No registration required.
+ ADA Accommodation Requests
+
+---
+
+16:00 - 17:00 [Indoor Family Storytime + Stay & Play](https://sjpl.bibliocommons.com/events/67c908474225953e0012fc7d)
+
+Best for children ages 0-8 with their caregivers; all families welcome!Storytime is designed to accommodate a mix of ages and invites the entire family to participate in early literacy activities such as stories, songs, rhymes, fingerplays, and movement activities. Storytime is a fun and interactive experience for the whole family that promotes the joys of reading and learning for all ages. This program is geared for children of all ages and their parents/caregivers!
+After Storytime concludes, we invite you to Stay &amp; Play! Until 5pm the Storytime librarian and special toys will be on the Children&#39;s Room floor to keep the fun going. Meet new friends, play with toys, chat, get book recommendations, and maybe even create something!
+Storytime 4:00-4:30pmStay &amp; Play 4:30pm-5:00pm
+Please note that this will be an indoor program.
+Free, with limited capacity.
+This program is developed to align with the Early Education Quality Standards.
+
+ADA Accommodation Requests
 
