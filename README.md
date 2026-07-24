@@ -1,157 +1,3 @@
-# Mon 2026-07-20
-
-## Gilroy
-
-18:30 - 19:30 [Pajama Storytime [Hora de Cuentos en Pijama]](https://sccl.bibliocommons.com/events/694edec5e3e3999b5c044f55)
-
-Please join us at Gilroy Library for the Pajama Storytime where we read stories, sing songs, play games, and wear our pajamas for children of all ages with Librarian Cameron! Learning while having fun.Every Monday at 6:30pm, in the Nest
---
-Acompañenos en nuestra Hora de Cuentos en Pijama en la biblioteca de Gilroy, donde leemos cuentos, cantamos canciones, y jugamos con la bibliotecario Cameron. No olviden traer sus pijamas puestas. ¡Aprendan mientras se divierten!Cada Lunes a las 6:30pm en el nido
-
-## San Jose
-
-17:30 - 18:30 [Family Storytime + Stay & Play](https://sjpl.bibliocommons.com/events/6a2311ff3233d28b1b2d1226)
-
-Storytime is designed to accommodate a mix of ages and invites the entire family to participate in early literacy activities such as stories, songs, rhymes, fingerplays, and movement activities. Storytime is a fun and interactive experience for the whole family that promotes the joys of reading and learning for all ages. This program is geared for children of all ages and their parents/caregivers! 
-After Storytime concludes, we invite you to Stay &amp; Play! Until 6:30 pm the Storytime librarian and special toys will be on the Children&#39;s Room floor to keep the fun going. Meet new friends, play with toys, chat, get book recommendations, and maybe even create something!
-Storytime 5:30-6:00 PMStay &amp; Play 6:00-6:30 PM
-Free, with limited capacity.
-This program is developed to align with the Early Education Quality Standards.
-ADA Accommodation Requests
-
-# Tue 2026-07-21
-
-## Atherton
-
-17:30 - 19:30 [Maker Exploration](https://smcl.bibliocommons.com/events/6945ce871e64afd01e4ff8f6)
-
-Want to explore our Makerspace? Come and join us during our open hour to learn about 3D printers, Laser Cutters and more!
-
-## Campbell
-
-18:30 - 19:00 [Goodnight, Little Storytime](https://sccl.bibliocommons.com/events/6a0606d6278f7c2f008d2816)
-
-Please join us for our evening storytime! There will be songs, silliness, and (of course) stories. Pajamas are welcome. Free, with limited capacity.
-Vehicle parking may be limited. A small number of strollers may be parked outside the Children&#39;s Room; no strollers in storytime, please.
-For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@sccl.org.
-
-## Half Moon Bay
-
-17:30 - 18:00 [Pajama Storytime](https://smcl.bibliocommons.com/events/698514b26724c63d00f0d791)
-
-Join us for a Pajama Family Storytime Adventure! Come along in your coziest pajamas for an imaginary journey where we&#39;ll hear new stories, sing songs, and learn fun wiggles that the whole family can enjoy together, from toddlers to grown-ups. Bring your favorite bedtime buddy and get ready for a night of fun!¡Acompáñenos para una aventura familiar de cuentos en pijama! Acompáñanos con tu pijama más favorita en un viaje imaginario en el que escucharemos nuevos cuentos, cantaremos canciones y aprenderemos divertidos meneos que toda la familia puede disfrutar junta, desde niños pequeños hasta adultos. ¡Trae a tu compañero favorito a la hora de dormir y prepárate para una noche de diversión!
-
-## Milpitas
-
-18:30 - 19:00 [Bilingual Family Storytime / 中英雙語故事時間 ](https://sccl.bibliocommons.com/events/6931e18a6724c63d00e53cc4)
-
-This 30-minute storytime features movement, singing, and action! The early literacy focus is on sharing stories and songs in English and Mandarin Chinese.歡迎小朋友來到故事時間，這是以半小時的雙中英語故事書, 兒歌, 手指謠, 玩遊戲為特色的内容。歡迎兒童們與家長褓母一同前來參加。For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@sccl.org.
-
-## San Jose
-
-17:00 - 18:00 [Reading to Children](https://sjpl.bibliocommons.com/events/6a0df29643b41b3d0067dd2b)
-
-Our library volunteer Ms. Jenny will be available in the children&#39;s picture book area to read picture books to children. Children will have fun listening to stories while they develop a love for books and reading. Pre-registration is not required, and children may drop in to hear a story any time during the program. This program is best suited for preschoolers and children in grades K-3.
-ADA Accommodation Requests
-
-# Wed 2026-07-22
-
-## Cupertino
-
-19:00 - 19:30 [Bedtime Storytime](https://sccl.bibliocommons.com/events/6a3acdd440f004e45f857471)
-
-Join us for evening Family Storytime in our program room! This storytime series is suitable for all ages and will feature stories, songs, rhymes and dances, all to encourage the development of crucial early literacy skills. Parents and children will listen together, learn together, and sing together.
-Storytime is limited to the first 100 families, with a maximum of 2 adults per family group. Please bring a yoga mat or blanket to sit on.
-
-## Milpitas
-
-19:00 - 20:00 [Summer 2026 Plant a Seed, Read: Mike Della Penna Magic](https://sccl.bibliocommons.com/events/69d6a9008ddc1caf5f1ba57e)
-
-Ready for some magic? Magician Mike Della Penna is bringing wonder and laughter to the library! His magic shows are equal parts playful and astonishing. Celebrate the magic of reading with this fun, funny, and highly participatory magic show!
-This is a special event for this year&#39;s Summer Reading Program: Plant a Seed, Read.Tickets are required for entry. Pick up a FREE ticket 30 minutes before the performance. Attendees must be present to collect their tickets. *(Limit of two adults per family.)*
-For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+ days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@lib.sccgov.org. 
-
-Sign up for Summer Reading 2026: Plant a Seed, Read, June 1st – July 31st and earn a reward for reading 5 books and completing 1 activity!
-Sign up and track your books with Beanstack online: https://sccl.beanstack.org/reader365 or download the free Beanstack App.
-Pick up your finishing reward at your local SCCLD library August 1st – 31st while supplies last.
-All Summer Reading Program information available here: www.sccld.org/summer
-
-## Pacifica
-
-19:00 - 19:45 [Family Storytime With Stay and Play](https://smcl.bibliocommons.com/events/694483eaddf5632800218c88)
-
-Get ready to learn and play with your little one! Hear new stories, sing songs and learn wiggles that the whole family can enjoy together, from toddlers to grown-ups.After Storytime join us for Stay and Play, a time to engage in open-ended exploration and learning in the company of other children and caregivers.
-
-## Palo Alto
-
-18:30 - 19:15 [Music & Movement](https://paloalto.bibliocommons.com/events/69a0b0f2b48451fc3c0563c7)
-
-Bring your dancing feet to the Mitchell Park Library on Wednesday evenings for Music &amp; Movement with Librarian Celina. Build early literacy skills through movement, songs, and dance.
-Instruments, songs, and dance moves will all be introduced so that everyone will be able to enjoy moving along to the music.
-This program is meant for families with children and no previous experience is needed!
-
-## San Jose
-
-17:30 - 18:15 [Indoor Music and Movement](https://sjpl.bibliocommons.com/events/69fbb1fd43b41b3d0064a3e1)
-
-This program is best for children ages 2-8 with their caregivers, but all children with caregivers are welcome.
-Join us every Wednesday for Music and Movement at the King Library Children&#39;s Room! 
-Music and Movement is designed to accommodate a mix of ages; we invite the entire family to participate in early literacy activities and develop motor skills through song and movement activities - sometimes with scarves, shakey eggs, and rhythm sticks! Music and Movement is a high energy Storytime - a fun and interactive experience for the whole family that promotes the joys of learning and movement. We&#39;ll start with a story, then move and groove to our monthly playlist.
-Free, with limited capacity. Program finishes by 6:10pm.
-This program is developed to align with the Early Education Quality Standards.
-ADA Accommodation Requests
-
----
-
-17:30 - 18:30 [Family Storytime + Stay & Play](https://sjpl.bibliocommons.com/events/6a2311ff3233d28b1b2d1227)
-
-Storytime is designed to accommodate a mix of ages and invites the entire family to participate in early literacy activities such as stories, songs, rhymes, fingerplays, and movement activities. Storytime is a fun and interactive experience for the whole family that promotes the joys of reading and learning for all ages. This program is geared for children of all ages and their parents/caregivers! 
-After Storytime concludes, we invite you to Stay &amp; Play! Until 6:30 pm the Storytime librarian and special toys will be on the Children&#39;s Room floor to keep the fun going. Meet new friends, play with toys, chat, get book recommendations, and maybe even create something!
-Storytime 5:30-6:00 PMStay &amp; Play 6:00-6:30 PM
-Free, with limited capacity.
-This program is developed to align with the Early Education Quality Standards.
-ADA Accommodation Requests
-
----
-
-18:00 - 18:30 [Reading to Children](https://sjpl.bibliocommons.com/events/6a0632da43b41b3d00668cd9)
-
-Participating in the Reading to Children program is a great way for children to develop their imagination and spark a love for books, reading and learning. 
-Children will enjoy a small group interaction with our volunteer and it will be held under the Read to Children sign, within the Children&#39;s Area.
-Free. No registration required.
- ADA Accommodation Requests
-
-# Thu 2026-07-23
-
-## Atherton
-
-17:30 - 19:30 [Maker Exploration](https://smcl.bibliocommons.com/events/6945ce871e64afd01e4ff8f7)
-
-Want to explore our Makerspace? Come and join us during our open hour to learn about 3D printers, Laser Cutters and more!
-
-## Milpitas
-
-18:30 - 19:00 [Preschool Storytime for Ages 3-5](https://sccl.bibliocommons.com/events/6a46d8900e851028002edab4)
-
-This thirty-minute story time is geared for preschoolers ages 3, 4, and 5. The early literacy focus is on longer picture books and flannel board stories and other storytelling activities and fingerplays. Children’s librarians also share kindergarten readiness resources with caregivers.For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+ days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@lib.sccgov.org.
-
-## San Jose
-
-17:00 - 18:00 [Reading to Children](https://sjpl.bibliocommons.com/events/6a4e8e007f5b862800a703a6)
-
-Our library volunteer Ms. Lincy will be available in the children&#39;s picture book area to read picture books to children. Children will have fun listening to stories while they develop a love for books and reading. Pre-registration is not required, and children may drop in to hear a story any time during the program. This program is best suited for preschoolers and children in grades K-3.
-ADA Accommodation Requests
-
----
-
-17:30 - 18:15 [Junior STEAM Club](https://sjpl.bibliocommons.com/events/6a18de6ef6bd012f006b1945)
-
-Join us every Thursday afternoon for a new STEAM adventure for young scientists and their caregivers, from robots to engineering to science to making. 
-June 4 - Marble Roller CoastersJune 11 - Fizzy Shapes - canceled for illnessJune 18 - Making MusicJune 25 - Dino DigJuly 2 - Fizzy Shapes - re-doJuly 9 - Sink or Float?July 16 - PatternsJuly 23 - Robot Zoo EscapeJuly 30 - Will it Fly?
-Appropriate for ages 3 to 7. To prevent overcrowding, this program is held three times, with identical sessions at 3:30, 4:30, and 5:30 p.m..
-Free, with limited capacity. Tickets available at the desk 30 minutes before program starts. All individuals (of any age) attending need a ticket and must be present to receive their ticket.
-ADA Accommodation Requests
-
 # Fri 2026-07-24
 
 ## Cupertino
@@ -381,18 +227,18 @@ ADA Accommodation Requests
 
 ---
 
-13:00 - 14:00 [Saturday Fun: DIY Helicopters](https://sjpl.bibliocommons.com/events/69445123571fb4d550be6374)
-
-Join us for a Free Fun filled Art, Crafts &amp; More Program! All supplies will be provided. All ages are welcome and no registration is required.
-ADA Accommodation Requests
-
----
-
 13:00 - 15:00 [Friends of Hillview Book Sale](https://sjpl.bibliocommons.com/events/6a500d6ccca66c2f00a25d58)
 
 Celebrate with fresh reads for all ages. Browse our collection of gently used books and find your next favorite read. 
 Cash only. Fill up a grocery-sized bag for just $6. All proceeds support Hillview Branch Library programs and services. 
 
+ADA Accommodation Requests
+
+---
+
+13:00 - 14:00 [Saturday Fun: DIY Helicopters](https://sjpl.bibliocommons.com/events/69445123571fb4d550be6374)
+
+Join us for a Free Fun filled Art, Crafts &amp; More Program! All supplies will be provided. All ages are welcome and no registration is required.
 ADA Accommodation Requests
 
 ---
@@ -578,20 +424,19 @@ ADA Accommodation Requests
 
 ---
 
-14:00 - 15:00 [Reading to Children ](https://sjpl.bibliocommons.com/events/698104eb377f55c8ec1747bf)
-
-Participating in the Reading to Children program is a great way for children to develop their imagination and spark a love for books, reading and learning. 
-Children will enjoy one-on-one or small group interaction with our adult volunteer. They are also welcome to practice reading to our volunteer. Pre-registration is not required, and children may drop in to hear a story any time during the program. This program is best suited for preschoolers and children in grades K-3 and will be held in the Children&#39;s Picture Book area.
-Free. No registration required.
- ADA Accommodation Requests
-
----
-
 14:00 - 15:00 [Reading to Children](https://sjpl.bibliocommons.com/events/6a0ca42446d5f64f7dcc3742)
 
 Participating in the Reading to Children program is a great way for children to develop their imagination and spark a love for books, reading and learning. 
 Children will enjoy one-on-one or small group interaction with our volunteer, Janani. They are also welcome to practice reading to our volunteer. Pre-registration is not required, and children may drop in to hear a story any time during the program. 
 This program is best suited for preschoolers and children in grades K-3 and will be held in the Children&#39;s area.
+Free. No registration required.
+ ADA Accommodation Requests
+
+---
+
+14:00 - 15:00 [Reading to Children ](https://sjpl.bibliocommons.com/events/698104eb377f55c8ec1747bf)
+
+Participating in the Reading to Children program is a great way for children to develop their imagination and spark a love for books, reading, and learning. It can also help them reach academic success.Children will enjoy one-on-one or small group interaction with our adult volunteer. They are also welcome to practice reading to our volunteer. Pre-registration is not required, and children may drop in to hear a story any time during the program. This program is best suited for preschoolers and children in grades K-3 and will be held in the Children&#39;s Area.
 Free. No registration required.
  ADA Accommodation Requests
 
@@ -655,7 +500,24 @@ Please join us at Gilroy Library for the Pajama Storytime where we read stories,
 --
 Acompañenos en nuestra Hora de Cuentos en Pijama en la biblioteca de Gilroy, donde leemos cuentos, cantamos canciones, y jugamos con la bibliotecario Cameron. No olviden traer sus pijamas puestas. ¡Aprendan mientras se divierten!Cada Lunes a las 6:30pm en el nido
 
+## San Jose
+
+17:30 - 18:30 [Family Storytime + Stay & Play](https://sjpl.bibliocommons.com/events/6a2311ff3233d28b1b2d1228)
+
+Storytime is designed to accommodate a mix of ages and invites the entire family to participate in early literacy activities such as stories, songs, rhymes, fingerplays, and movement activities. Storytime is a fun and interactive experience for the whole family that promotes the joys of reading and learning for all ages. This program is geared for children of all ages and their parents/caregivers! 
+After Storytime concludes, we invite you to Stay &amp; Play! Until 6:30 pm the Storytime librarian and special toys will be on the Children&#39;s Room floor to keep the fun going. Meet new friends, play with toys, chat, get book recommendations, and maybe even create something!
+Storytime 5:30-6:00 PMStay &amp; Play 6:00-6:30 PM
+Free, with limited capacity.
+This program is developed to align with the Early Education Quality Standards.
+ADA Accommodation Requests
+
 # Tue 2026-07-28
+
+## Atherton
+
+17:30 - 19:30 [Maker Exploration](https://smcl.bibliocommons.com/events/6945ce871e64afd01e4ff8f8)
+
+Want to explore our Makerspace? Come and join us during our open hour to learn about 3D printers, Laser Cutters and more!
 
 ## Campbell
 
@@ -676,4 +538,303 @@ This 30-minute storytime features movement, singing, and action! The early liter
 18:00 - 20:00 [Summer Movies](https://sccl.bibliocommons.com/events/6a404cfc96ee38a44a9316a0)
 
 Join us for popcorn and a movie. Bring a picnic blanket, we will be sitting on the floor.For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+ days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@sccl.org.
+
+## San Jose
+
+17:00 - 18:00 [Reading to Children](https://sjpl.bibliocommons.com/events/6a0df29643b41b3d0067dd2c)
+
+Our library volunteer Ms. Jenny will be available in the children&#39;s picture book area to read picture books to children. Children will have fun listening to stories while they develop a love for books and reading. Pre-registration is not required, and children may drop in to hear a story any time during the program. This program is best suited for preschoolers and children in grades K-3.
+ADA Accommodation Requests
+
+---
+
+17:00 - 18:00 [Street Smart: Pedestrian and Bike Safety with Officer Bailey](https://sjpl.bibliocommons.com/events/6a36f6e9296ea565de2da26b)
+
+Have fun and learn about pedestrian and bicycle traffic safety with Officer Cordell Bailey, a Traffic Safety Education Officer from San Jose&#39;s Department of Transportation!Officer Bailey will provide pedestrian and bicycle traffic safety education to everyone who are at greatest risk of injury and fatalities in pedestrian and bicycle-related accidents.
+Learn more about the &#34;Street Smarts&#34; student pedestrian safety program.ADA Accommodation Requests
+
+---
+
+17:45 - 18:30 [Bilingual Hindi-English Storytime द्विभाषी हिंदी-अंग्रेज़ी कहानी समय](https://sjpl.bibliocommons.com/events/69fe1182e8af4a2f00711c5e)
+
+The Almaden Branch library warmly invites you to a bilingual Hindi-English Storytime for the community. This special Storytime helps children strengthen their language comprehension skills while enjoying traditional rhymes and stories from the Indian culture. 
+Offered monthly, this engaging program is aimed for kids ages 3-10 and their families, but all ages and language abilities are welcome to join!
+Free, no reservations requiredअल्माडेन ब्रांच पुस्तकालय समुदाय के लिए हिंदी-अंग्रेज़ी द्विभाषी कहानी समय में आपका हार्दिक स्वागत करता है। यह विशेष कहानी समय बच्चों को भारतीय संस्कृति की पारंपरिक कविताओं और कहानियों का आनंद लेते हुए उनकी भाषा समझने की क्षमताओं को मजबूत करने में मदद करता है।यह कार्यक्रम महीने में एक बार आयोजित किया जाता है और 3-10 साल के बच्चों और उनके परिवारों के लिए लक्षित है, लेकिन सभी उम्र और भाषा क्षमताओं के लोग इसमें शामिल हो सकते हैं!मुफ़्त, किसी भी आरक्षण की आवश्यकता नहीं!ADA Accommodation RequestsThis program is developed to align with the Early Education Quality Standards.
+
+# Wed 2026-07-29
+
+## Cupertino
+
+19:00 - 20:00 [Summer 2026 Plant a Seed, Read: Mike Della Penna Magic](https://sccl.bibliocommons.com/events/69d6a922b48451fc3c0e2bff)
+
+Ready for some magic? Magician Mike Della Penna is bringing wonder and laughter to the library! His magic shows are equal parts playful and astonishing. Celebrate the magic of reading with this fun, funny, and highly participatory magic show!
+This is a special event for this year&#39;s Summer Reading Program: Plant a Seed, Read.
+For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+ days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@lib.sccgov.org. 
+
+Sign up for Summer Reading 2026: Plant a Seed, Read, June 1st – July 31st and earn a reward for reading 5 books and completing 1 activity!
+Sign up and track your books with Beanstack online: https://sccl.beanstack.org/reader365 or download the free Beanstack App.
+Pick up your finishing reward at your local SCCLD library August 1st – 31st while supplies last.
+All Summer Reading Program information available here: www.sccld.org/summer
+
+## Milpitas
+
+19:00 - 20:00 [Summer 2026 Plant a Seed, Read: Puppet Art Theater Co.](https://sccl.bibliocommons.com/events/69f126d6b6c4ac1fedcf7df4)
+
+Join us for Tommy&#39;s Space Adventure, presented by Puppet Art Theater Co.!
+
+Tommy loves books about outer space and space aliens. When Zeenon the Alien travels millions of light years to visit earth, Tommy must save him from the evil Dr. Lost N. Space.
+
+Tickets are required for entry. Pick up a FREE ticket 30 minutes before the performance. Attendees must be present to collect their tickets. *(Limit of two adults per family.)*
+For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+ days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@lib.sccgov.org. 
+
+Sign up for Summer Reading 2026: Plant a Seed, Read, June 1st – July 31st and earn a reward for reading 5 books and completing 1 activity!
+Sign up and track your books with Beanstack online: https://sccl.beanstack.org/reader365 or download the free Beanstack App.
+Pick up your finishing reward at your local SCCLD library August 1st – 31st while supplies last.
+All Summer Reading Program information available here: www.sccld.org/summer
+
+## Morgan Hill
+
+18:00 - 19:30 [Student-Led Meaningful Motion](https://sccl.bibliocommons.com/events/6a4009a37e16a03d00e87dbe)
+
+This program is designed to support children as they develop the foundational skills needed for lifelong success. Through engaging and enjoyable activities that target fine motor skills, gross motor skills, and sensory processing. Children will have a chance to work at various stations exploring a variety of skills and practices. 
+This program is for kids 4-8 only. All supplies will be provided. Registration is required. 
+This program is an approved Passion Project Proposal and will be led by a group of Morgan Hill high school students volunteering to share their passions with the community! 
+For any questions, please contact Librarian Hannah Clement at hannah.clement@lib.sccgov.org 
+For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+ days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@lib.sccgov.org.
+
+## Pacifica
+
+19:00 - 19:45 [Family Storytime With Stay and Play](https://smcl.bibliocommons.com/events/694483eaddf5632800218c89)
+
+Get ready to learn and play with your little one! Hear new stories, sing songs and learn wiggles that the whole family can enjoy together, from toddlers to grown-ups.After Storytime join us for Stay and Play, a time to engage in open-ended exploration and learning in the company of other children and caregivers.
+
+## Palo Alto
+
+18:30 - 19:15 [Music & Movement](https://paloalto.bibliocommons.com/events/69a0b0f2b48451fc3c0563c8)
+
+Bring your dancing feet to the Mitchell Park Library on Wednesday evenings for Music &amp; Movement with Librarian Celina. Build early literacy skills through movement, songs, and dance.
+Instruments, songs, and dance moves will all be introduced so that everyone will be able to enjoy moving along to the music.
+This program is meant for families with children and no previous experience is needed!
+
+## San Jose
+
+17:30 - 18:15 [Indoor Music and Movement](https://sjpl.bibliocommons.com/events/69fbb1fd43b41b3d0064a3e2)
+
+This program is best for children ages 2-8 with their caregivers, but all children with caregivers are welcome.
+Join us every Wednesday for Music and Movement at the King Library Children&#39;s Room! 
+Music and Movement is designed to accommodate a mix of ages; we invite the entire family to participate in early literacy activities and develop motor skills through song and movement activities - sometimes with scarves, shakey eggs, and rhythm sticks! Music and Movement is a high energy Storytime - a fun and interactive experience for the whole family that promotes the joys of learning and movement. We&#39;ll start with a story, then move and groove to our monthly playlist.
+Free, with limited capacity. Program finishes by 6:10pm.
+This program is developed to align with the Early Education Quality Standards.
+ADA Accommodation Requests
+
+---
+
+17:30 - 18:15 [1000 Books Dance Party](https://sjpl.bibliocommons.com/events/69fb8456703c33630025dd6c)
+
+This program is intended for children ages 2-5; all children with caregivers welcome! Offered in-lieu of our regularly scheduled Music &amp; Movement.
+If you&#39;re working towards 1000 Books Before Kindergarten, are interested in learning more about it, or just want to move, put on your party clothes and dance with your friends at the library! We will move, groove, read, and play to celebrate books! Celebrate your 1000 Books Before Kindergarten milestones and dance with us! Featuring favorite songs from our Music &amp; Movement playlists.
+Reading logs will be available for families not yet registered - it&#39;s easy to sign-up and start on your 1000 Books journey!
+Free. No registration is required.
+ADA Accommodation Requests
+
+---
+
+17:30 - 18:30 [Family Storytime + Stay & Play](https://sjpl.bibliocommons.com/events/6a2311ff3233d28b1b2d1229)
+
+Storytime is designed to accommodate a mix of ages and invites the entire family to participate in early literacy activities such as stories, songs, rhymes, fingerplays, and movement activities. Storytime is a fun and interactive experience for the whole family that promotes the joys of reading and learning for all ages. This program is geared for children of all ages and their parents/caregivers! 
+After Storytime concludes, we invite you to Stay &amp; Play! Until 6:30 pm the Storytime librarian and special toys will be on the Children&#39;s Room floor to keep the fun going. Meet new friends, play with toys, chat, get book recommendations, and maybe even create something!
+Storytime 5:30-6:00 PMStay &amp; Play 6:00-6:30 PM
+Free, with limited capacity.
+This program is developed to align with the Early Education Quality Standards.
+ADA Accommodation Requests
+
+---
+
+18:00 - 18:30 [Reading to Children](https://sjpl.bibliocommons.com/events/6a0632da43b41b3d00668cda)
+
+Participating in the Reading to Children program is a great way for children to develop their imagination and spark a love for books, reading and learning. 
+Children will enjoy a small group interaction with our volunteer and it will be held under the Read to Children sign, within the Children&#39;s Area.
+Free. No registration required.
+ ADA Accommodation Requests
+
+# Thu 2026-07-30
+
+## Atherton
+
+17:30 - 19:30 [Maker Exploration](https://smcl.bibliocommons.com/events/6945ce871e64afd01e4ff8f9)
+
+Want to explore our Makerspace? Come and join us during our open hour to learn about 3D printers, Laser Cutters and more!
+
+## Milpitas
+
+18:30 - 19:00 [Preschool Storytime for Ages 3-5](https://sccl.bibliocommons.com/events/6a46d8900e851028002edab5)
+
+This thirty-minute story time is geared for preschoolers ages 3, 4, and 5. The early literacy focus is on longer picture books and flannel board stories and other storytelling activities and fingerplays. Children’s librarians also share kindergarten readiness resources with caregivers.For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+ days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@lib.sccgov.org.
+
+## Palo Alto
+
+18:30 - 19:30 [KDC: Kids Dance Carnival](https://paloalto.bibliocommons.com/events/69e9504bb6c4ac1fedce1fe0)
+
+Join for KDC Palo Alto 2026! Come get moving and grooving at this kid-centered dance party. We&#39;ll be dancing with bubbles, jamming with glow sticks, and making a collaborative art piece.  
+Come decked out in neon, sequins, glow-in-the-dark, kandi bracelets/necklaces, and colorful costumes. Bring your own light up and glow-in-the-dark accessories and dance the early evening away! Costumes and accessories encouraged but not required.
+Recommended age is 2-8 years old, but we won’t be checking ID and if you think your slightly older or younger kiddo would enjoy dancing in a room of other kids with flashing lights, then bring &#39;em along! 
+Note:  
+There will be loud music and flashing lights.  
+Please arrive on time. We will be monitoring room capacity. You may need to wait to enter.
+
+# Fri 2026-07-31
+
+## Cupertino
+
+19:00 - 20:00 [Summer 2026 Plant a Seed, Read: Puppet Art Theater ](https://sccl.bibliocommons.com/events/69da896db6c4ac1fedcbb233)
+
+Puppet Art Theater presents Goldilocks, and the Three Sharks! Join in the fun as Goldilocks the Mermaid decides to seek adventure at the bottom of the ocean but she can&#39;t seem to stay out of trouble. Wacky clams, silly seahorses and a host of other sea creatures all try helping but Goldilocks just doesn’t listen. The real trouble begins when Goldilocks explores a sunken ship that just happens to be the home of three sharks. Will Goldilocks escape? Will she find adventure?Space is limited. Please arrive on time. Doors will close once room hits capacity.This is a special event for this year&#39;s Summer Reading Program: Plant a Seed, Read.
+
+For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+ days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@lib.sccgov.org. 
+
+Sign up for Summer Reading 2026: Plant a Seed, Read, June 1st – July 31st and earn a reward for reading 5 books and completing 1 activity!
+Sign up and track your books with Beanstack online: https://sccl.beanstack.org/reader365 or download the free Beanstack App.
+Pick up your finishing reward at your local SCCLD library August 1st – 31st while supplies last.
+All Summer Reading Program information available here: www.sccld.org/summer
+
+## Los Altos
+
+18:30 - 21:00 [Friends of the Los Altos Library Booksale @ Los Altos Community Center](https://sccl.bibliocommons.com/events/6a29b52ecaf9343600621646)
+
+The Friends of the Los Altos Library Present their Community Book SaleFiction &amp; non-fiction books and media for all ages
+Friday, July 31, 6:30 - 9pm. Members only Preview Sale! Join at the door for $10.Saturday, August 1, 10am - 4pmSunday, August 2, 11am -2:00pm. $5 bag sale! (Bags are provided.)
+We accept credit cards and cash, no checks.This is a Books4Schools event.Location: Los Altos Community Center (in cooperation with the city of Los Altos), 97 Hillview Ave., Los Altos, CA 94022.To volunteer for a 3-hour shift: volbooksales@losaltoslibraryfriends.org
+
+---
+
+18:30 - 21:00 [Friends of the Los Altos Library Booksale @ Los Altos Community Center](https://sccl.bibliocommons.com/events/6a29b56c8d1b82ca9f78fc85)
+
+The Friends of the Los Altos Library Present their Community Book Sale
+Fiction &amp; non-fiction books and media for all ages
+Friday, July 31, 6:30 - 9pm. Members only Preview Sale! Join at the door for $10.Saturday, August 1, 10am - 4pmSunday, August 2, 11am -2:00pm. $5 bag sale! (Bags are provided.)
+We accept credit cards and cash, no checks.This is a Books4Schools event.
+Location: Los Altos Community Center (in cooperation with the city of Los Altos), 97 Hillview Ave., Los Altos, CA 94022.
+To volunteer for a 3-hour shift: volbooksales@losaltoslibraryfriends.org
+
+# Sat 2026-08-01
+
+## Atherton
+
+10:30 - 11:30 [Family Storytime With Stay and Play!](https://smcl.bibliocommons.com/events/6a399e979571053ed63c0b4e)
+
+Get ready to learn and play with your little one! Hear new stories, sing songs, and learn wiggles that the whole family can enjoy together, from toddlers to grown-ups.
+This event will be held in the children&#39;s room at the Atherton Library. Storytime will be held for the first 30 minutes of the hour. After Storytime, join us for Stay and Play, where kids and their caregivers can practice interpersonal skills and have fun learning to share and socialize!
+
+---
+
+11:00 - 14:00 [Maker Exploration for Families](https://smcl.bibliocommons.com/events/6945ced776261f2800600db1)
+
+Want to explore our Makerspace? Come and join us during our open hours to learn about 3D Printing and Laser cutting!
+This session is intended for families of all ages looking to explore our space!
+Open Makerspace at Atherton Library is also available on:
+Tuesdays and Thursdays from 5:30-7:30 PM
+
+## Belmont
+
+10:30 - 11:30 [Family Storytime with Stay & Play](https://smcl.bibliocommons.com/events/6a3b0cd7c134422d50e9e851)
+
+Come along on an imaginary adventure. Hear new stories, sing songs and learn wiggles that the whole family can enjoy together, from toddlers to grown-ups.After Storytime join us for Stay and Play, a time to engage in open-ended exploration and learning in the company of other children and caregivers.
+
+---
+
+14:00 - 16:00 [Maker Hangout](https://smcl.bibliocommons.com/events/6a5546ebc7e02e3d0068e0da)
+
+Discover what you can make using our library maker tools. Sometimes techy, sometimes crafty, always fun! For all ages!
+No registration required. First-come, first-served as space and equipment permit.
+
+## Cupertino
+
+10:30 - 11:00 [Family Storytime at Cupertino Library](https://sccl.bibliocommons.com/events/6a08e108e13d3b4603b486e3)
+
+Join us for Family Storytime for all ages in our program room! This storytime series is suitable for all ages and will feature stories, songs, rhymes and dances, all to encourage the development of crucial early literacy skills. Parents and children will listen together, learn together, and sing together.For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+ days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@lib.sccgov.org
+
+## Gilroy
+
+10:30 - 11:30 [Maracas & Movement ](https://sccl.bibliocommons.com/events/6a0f484cc7d3cd58005ab40c)
+
+Get ready to wiggle, giggle, and shout “¡Vamos a bailar!” as we explore music, movement, and children’s rhymes in English and Spanish. Families and caregivers are invited to jump into the fun with percussion instruments, scarves, shakers, and more.
+Prepárate para moverte, reír y gritar “¡Vamos a bailar!” mientras exploramos música, movimiento y rimas infantiles en inglés y español. Los niños y sus familias están invitados a unirse a la diversión con instrumentos de percusión, pañuelos, maracas y más.
+
+---
+
+16:00 - 17:30 [End of Summer Reading Foam Party](https://sccl.bibliocommons.com/events/6a597aeff4e5db3d00c253e3)
+
+Join the Foam party and pick up your final summer reading prize-
+Ven disfrutar la fiesta de espuma y recoge tu premio de lectura de verano
+
+## Half Moon Bay
+
+10:30 - 11:00 [Saturday Storytime](https://smcl.bibliocommons.com/events/69542b19c967cb41207f238a)
+
+Come along on an imaginary adventure for Family Storytime. Hear new stories, sing songs and learn wiggles that the whole family can enjoy together, from toddlers to grown-ups.
+
+## Los Altos
+
+10:00 - 16:00 [Friends of the Los Altos Library Booksale @ Los Altos Community Center](https://sccl.bibliocommons.com/events/6a29b53116554cd59fc7d044)
+
+The Friends of the Los Altos Library Present their Community Book SaleFiction &amp; non-fiction books and media for all ages
+Friday, July 31, 6:30 - 9pm. Members only Preview Sale! Join at the door for $10.Saturday, August 1, 10am - 4pmSunday, August 2, 11am -2:00pm. $5 bag sale! (Bags are provided.)
+We accept credit cards and cash, no checks.This is a Books4Schools event.Location: Los Altos Community Center (in cooperation with the city of Los Altos), 97 Hillview Ave., Los Altos, CA 94022.To volunteer for a 3-hour shift: volbooksales@losaltoslibraryfriends.org
+
+---
+
+10:00 - 16:00 [Friends of the Los Altos Library Booksale @ Los Altos Community Center](https://sccl.bibliocommons.com/events/6a29b5717550c8bf9f5c581f)
+
+The Friends of the Los Altos Library Present their Community Book Sale
+Fiction &amp; non-fiction books and media for all ages
+Friday, July 31, 6:30 - 9pm. Members only Preview Sale! Join at the door for $10.Saturday, August 1, 10am - 4pmSunday, August 2, 11am -2:00pm. $5 bag sale! (Bags are provided.)
+We accept credit cards and cash, no checks.This is a Books4Schools event.
+Location: Los Altos Community Center (in cooperation with the city of Los Altos), 97 Hillview Ave., Los Altos, CA 94022.
+To volunteer for a 3-hour shift: volbooksales@losaltoslibraryfriends.org
+
+## Morgan Hill
+
+10:30 - 11:15 [Bilingual Spanish & English Family Storytime](https://sccl.bibliocommons.com/events/695810b6111b9da65caa1e62)
+
+Join us in the Children&#39;s Activity Room for family fun with your little one! Stories, music, movement, and more!Storytimes are bilingual (Spanish/English) and all ages are welcome to attend.
+¡Acompáñenos en la sala de actividades para niños para divertirse en familia con su pequeño! ¡Cuentos, música, movimiento y más!Las horas de cuentos son bilingües (español/inglés) y todas las edades son bienvenidas.For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility 7+ days prior to the event. If you need assistance with the form, speak with a staff member at your local library, call (408) 540-3945, or email us at ask@lib.sccgov.org.
+
+## Pacifica
+
+11:15 - 11:45 [Rhythm Workshop With Cassie Levy](https://smcl.bibliocommons.com/events/6a4428d786636e3d0051c935)
+
+Come learn the basic building blocks of music through melody and rhythm. We&#39;ll use fun introductory instruments such as rhythm sticks and shakers.Registration is required for all child participants. Adult guardians do not have to register.
+This program will replace our regular Family Storytime.
+
+## Palo Alto
+
+11:00 - 11:30 [Chill Out with Mindfulness Meditation](https://paloalto.bibliocommons.com/events/6a120e06c7d3cd58005b3761)
+
+Center yourself and increase your focus with mindfulness meditation led by Phuong Pham. Each session begins with an introduction to meditation, 15 minutes of sitting and releasing meditation, and group sharing and Q&amp;A. 
+This program is open to all ages, young and old, and all levels of experience. Children under 10 years old must be accompanied by an adult. No registration is required. 
+Participants are encouraged to bring their own yoga mats and/or meditation cushions. Chairs are available for adults who do not bring them.Phuong is a Buddhist nun experienced in leading mindfulness meditation. You can learn more about Phuong here and can watch her meditation videos on the library&#39;s YouTube channel here.
+
+---
+
+15:00 - 16:00 [Disco Bubbles with Daisy](https://paloalto.bibliocommons.com/events/69fd17aef89ee15800515554)
+
+Join us at the Children&#39;s Library in the Secret Garden for an afternoon disco bubble show with Daisy!  
+Daisy&#39;s mission is to spread smiles through kindness and joy, building dreams and memories through positive, inclusive words, shapes, and laughter. Join us for a fun-filled experience that will leave you feeling happy and uplifted!
+This program is part of our 2026 Summer Reading Program: Oceans of Possibilities. Don&#39;t forget to sign up for the free program to earn badges and prizes!Thank you to the Friends of the Palo Alto Library (FOPAL) for their generous support.
+
+---
+
+16:30 - 17:30 [Music and Puppets with Mr. Elephant](https://paloalto.bibliocommons.com/events/69fd185143b41b3d0064f7c5)
+
+Join us at the Children&#39;s Library in the Secret Garden to enjoy tunes with musician Mr. Elephant!
+Mr. Elephant is an Oakland-based speech therapist who makes award-winning music for little learners (and big ones too!) alongside his hilarious gang of puppets. As seen on YouTube and GoNoodle, his songs are full of movement, language and laughter and are accessible and fun for all ages and abilities. Come join us!
+This program is part of our 2026 Summer Reading Program: Oceans of Possibilities. Don&#39;t forget to sign up for the free program to earn badges and prizes!Thank you to the Friends of the Palo Alto Library (FOPAL) for their generous support.
+
+## Saratoga
+
+11:00 - 11:30 [Family Storytime](https://sccl.bibliocommons.com/events/677d78bede0d01f3611a7bcf)
+
+Join us for fun stories, fingerplays, action rhymes and songs! Please park strollers in the Children&#39;s room.For accessibility accommodations (ex. ASL), please fill out the online form at sccld.org/accessibility
+7+days prior to the event. If you need assistance with the form, speak with a staff member at your
+local library, call (408) 540-3945, or email us at ask@sccl.org.
 
